@@ -1,2 +1,2 @@
-# codinggod2025.1
+# bomb.com
 clueless grinding
